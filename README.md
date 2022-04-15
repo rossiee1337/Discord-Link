@@ -1,2 +1,1 @@
-# Discord-Link
-Rossie Client Archive Discord Link
+https://discord.gg/6SrjATUvXx :)
